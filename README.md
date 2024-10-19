@@ -1,1 +1,1 @@
-https:/hilalpksy.github.io
+https://hilalpksy.github.io/
